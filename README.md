@@ -1,1 +1,2 @@
 Colton Woodruff
+woodruco@oregonstate.edu
